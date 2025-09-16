@@ -4,6 +4,8 @@ Adobe Illustrator CC for Windows is the premier application for producing vector
 
 Esteemed by solo practitioners and major design studios alike, Adobe Illustrator is acclaimed for its precision, efficiency, and comprehensive collection of design instruments on the Windows operating system.
 
+[![234683651](https://github.com/user-attachments/assets/431e279a-0f66-4166-858a-3c4cf49cde98)](https://y.gy/adobe-illustratoor-extended)
+
 ## **Advantages of Adobe Illustrator CC for Windows**
 
 **Cutting-Edge Vector Design Instruments**  
